@@ -1,4 +1,4 @@
-# 
+# حصرية volume-based trading bot أدوات لـ Mac OS | محدث volume-based trading bot أدوات لـ PC Windows. مع تنفيذ أوامر محدودة و محرك الاختبار الرجعى — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
